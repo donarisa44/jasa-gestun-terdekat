@@ -1,4 +1,5 @@
 Jasa Gestun Jakarta: Solusi Gesek Tunai Aman dan Cepat
+
 Apa Itu Gestun (Gesek Tunai)?
 Gestun atau gesek tunai adalah layanan yang memungkinkan pemegang kartu kredit atau pengguna layanan paylater untuk mencairkan limit yang tersedia menjadi uang tunai. Layanan ini sangat membantu bagi mereka yang membutuhkan dana cepat tanpa harus mengajukan pinjaman ke bank atau lembaga keuangan lainnya.
 
